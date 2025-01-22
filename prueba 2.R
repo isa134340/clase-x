@@ -1,1 +1,0 @@
-#esta tambien se sube o ne ?
